@@ -9,7 +9,7 @@ yikoushu
 tiantian,898.yut
 boka,tianxia,765yh
 tiantian,rt4332,76hu
-zhimbw.yuy67
+zhimbw.yuy67,67tg
 tianttt,yuty8
 g20fh,90989
 haode,565645
