@@ -6,7 +6,7 @@ uiuggg,hghfg,rt433
 ok,links,uit564,7866
 tuotuod.yu78.uy65,9876gh
 yikoushu,fgee,56gtt
-tiantian,898.yut
+tiantian,898.yut,tyr3
 boka,tianxia,765yh.nmbg
 tiantian,rt4332,76hu
 zhimbw.yuy67,67tg
