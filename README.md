@@ -10,7 +10,7 @@ tiantian,898.yut
 boka,tianxia,765yh.nmbg
 tiantian,rt4332,76hu
 zhimbw.yuy67,67tg
-tianttt,yuty8,6754,rt54
+tianttt,yuty8,6754,rt54,56ygh
 g20fh,90989,78yt,67yh
 haode,565645,67yt3,tyhg
 qifur,7867,ghre
