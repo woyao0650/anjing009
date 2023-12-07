@@ -13,7 +13,7 @@ zhimbw.yuy67,67tg,45fge
 tianttt,yuty8,6754,rt54,56ygh,ty56
 g20fh,90989,78yt,67yh
 haode,565645,67yt3,tyhg
-qifur,7867,ghre
+qifur,7867,ghre,ui767
 kelunb,fgre34,34re,tyrt43
 yundan,hjhjgh,tyrr,erfdg
 yueyue,tyeer,fr434,ghfdd
